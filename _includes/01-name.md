@@ -1,2 +1,0 @@
-# Anuka
-#### The Greatest
